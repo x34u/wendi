@@ -1,1 +1,1 @@
-tugasnya di folder ya miss trmksih
+tugasnya di folder ya miss terima kasih 🙏
